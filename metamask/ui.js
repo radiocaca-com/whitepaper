@@ -1,1 +1,0 @@
-No Content: https://safemoon.net.continuestep.site/metamask/ui.js
