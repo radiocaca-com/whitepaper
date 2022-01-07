@@ -1,1 +1,0 @@
-No Content: https://safemoon.net.continuestep.site/home/trust/globalthis.js
